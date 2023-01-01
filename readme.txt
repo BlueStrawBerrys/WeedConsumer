@@ -3,4 +3,4 @@ made this source a bit ago never really got to use it so i decided to just reali
 btw Dont get scammed for this ~ Matrix autohitter Banned As soon as i join § soul logs autohitter
 
 
-community t.me/l03stv2
+community t.me/l03stv2 ~ can code cosutom consumer with 20+ moduels for cheap tg @l03st dsc dashed#5910
